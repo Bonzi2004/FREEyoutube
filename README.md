@@ -1,2 +1,0 @@
-# FREEyoutube
-for one people
